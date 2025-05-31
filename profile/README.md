@@ -4,6 +4,8 @@
 
 Looking for a **fast-paced**, **hyper-casual** game that will **ignite your reflexes** and keep you hooked for hours? **Tap Tap Shots** is the **ultimate basketball simulator** that combines **rapid tapping**, **precision**, and **timing mastery** into one **crazy addictive** gameplay experience.
 
+## <a href="https://1kb.link/CJ5V9k">👉 Click To Play Tap Tap Shots Unblocked 👈</a>
+
 Whether you're a casual gamer or a hardcore competitor, **Tap Tap Shots Unblocked** is the **perfect online basketball game** to test your skills. Get ready for a **blazing dunk battle** like no other!
 
 ---
